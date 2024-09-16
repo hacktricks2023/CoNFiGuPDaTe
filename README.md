@@ -1,1 +1,0 @@
-# CoNFiGuPDaTe djsjsosuxnxjzoßxnjxksjsjsjshshshbsbshsbdbxbx
